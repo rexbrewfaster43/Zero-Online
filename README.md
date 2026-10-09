@@ -208,4 +208,4 @@ Zero Online is available as a complete free version, which includes all features
 Don't miss out on the chance to join the battle in Zero Online! Download now and start your adventure today!
 
 ---
-**Last updated:** 2026-10-08 20:23:13 UTC
+**Last updated:** 2026-10-09 00:51:32 UTC
